@@ -1,1 +1,3 @@
 # 126-final-project
+
+Hi Guys! ehe~ (￣y▽￣)╭ Ohohoho.....
